@@ -2,3 +2,5 @@
 
 \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 Włączanie: włączasz plik start
+
+ALE WIESZ MUSISZ TO POBRAC BO INACZEJ NIE ZADZIALA ~~ PODPOWIEDZ DLA DEBILI ~~
